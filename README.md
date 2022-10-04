@@ -6,7 +6,7 @@ Este es mi Readme donde escribire lo qu se ha estado llevando a cabo hasta el mo
 - aprendi los comandos para mandar y recibir archivos
 - ya aprendimos a trabajar con colaboradores y que visualizar sus cambios
 
-creado por un buen muchacho 
+creado por un buen muchacho. 
 eso seria todo hasta el momento :D
 
 
