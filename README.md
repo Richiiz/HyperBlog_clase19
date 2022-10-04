@@ -11,7 +11,7 @@ eso seria todo hasta el momento :D
 
 aprovecho que descarguen barotrauma en steam, esta muy bueno y jugarlo con amigos es mejor :D
 ![Barotrauma](https://i.ytimg.com/vi/5astpd0RRrY/maxresdefault.jpg "Barotrauma")[COMPRALO]
-[Compralo en steam](http:/https://store.steampowered.com/app/602960/Barotrauma// "Compralo en steam")
+[Compralo en steam](https://store.steampowered.com/app/602960/Barotrauma/ "Compralo en steam")
 COMPRALO
 COMPRALO 
 COMPRALO!
