@@ -8,6 +8,8 @@ Este es mi Readme donde escribire lo qu se ha estado llevando a cabo hasta el mo
 - creado por el increible equipo de TI
 - incluye ejemplos de windows, linux y mac
 
+disponible para todas las edades
+
 eso seria todo hasta el momento :D
 
 
